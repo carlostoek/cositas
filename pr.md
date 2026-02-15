@@ -1,7 +1,7 @@
 [Camera & Photography Style]
 Raw DSLR fashion full shot photography, 35mm wide lens, f/2.8. Authentic photographic grain, slight motion blur on the fingertips, and natural sensor noise. No digital smoothing or AI-upscaled look.
 [Subject & Anatomy]
-Woman with long, voluminous red straight hair actuando como Jessica Rabbit haciendo poses random elegantes y sensuales. Anatomical realism is CRITICAL. Skin texture: Visible pores, natural micro-creases at the waistline where the body bends, and subtle vellus hair on the arms. NO airbrushing, NO plastic skin.
+Stunning Woman with long, voluminous red straight hair cuclillas Anatomical realism is CRITICAL. Skin texture: Visible pores, natural micro-creases at the waistline where the body bends, and subtle vellus hair on the arms. NO airbrushing, NO plastic skin.
 [Pose & Clothing Physics]. She wears a form-fitting, sleeveless red dress with a high slit on the left side, revealing a glimpse of black stockings and a garter belt. 
  Her lips are slightly parted. 
 [Texture Details: The Gloves]
